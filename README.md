@@ -2,4 +2,4 @@
 
 Hi Humans!
 
-Techcat here, Please do not rub my belly!
+TechCat here, Please do not rub my belly!
